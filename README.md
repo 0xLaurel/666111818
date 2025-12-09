@@ -41,4 +41,4 @@ Blockchain graduate (Class of 2025) with 2 years of hands-on experience in smart
 
 
 ---
-⭐️ Thanks for visiting! Let's build the future of Web3 together. From [666111818]](https://github.com/666111818)
+⭐️ Thanks for visiting! Let's build the future of Web3 together. From [0xLaurel]](https://github.com/0xLaurel)
